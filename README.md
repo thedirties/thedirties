@@ -17,6 +17,5 @@
 <br><br>
 
 <p align="center"> 
-  $${\textsf{\color{gray}rie/ruru ♠︎ she/him ♠︎ pangender}}$$<br>
+  $${\textsf{\color{gray}bunz/rie ♠︎ she/him ♠︎ pangender}}$$<br>
   $${\textsf{\color{gray}c+h encouraged ♠︎ mostly busy w2i.}}$$<br>
-  $${\textsf{\color{gray}yes this is bunz, i just wanna use my names}}$$<br>
