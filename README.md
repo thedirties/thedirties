@@ -18,5 +18,5 @@
 <p align="center"> 
   $${\textsf{\color{gray}rie , they/her pref}}$$<br>
   $${\textsf{\color{gray}cuds+hugs encouraged , asleep mostly.}}$$<br>
-  @thecleansers
+  <a href="https://github.com/thecleansers/"> @thecleansers</a> $${\textsf{\color{gray}my girl}}$$<br>
 
