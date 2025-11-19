@@ -16,6 +16,6 @@
 <br><br>
 
 <p align="center"> 
-  $${\textsf{\color{gray}rie , they/her pref}}$$<br>    $${\textsf{\color{gray}cuds+hugs encouraged , asleep mostly.}}$$<br>
-  <a href="https://github.com/thecleansers/"> @thecleansers</a> $${\textsf{\color{gray}my girl}}$$<br>
+  $${\textsf{\color{gray}ei , they/her pref}}$$<br>    $${\textsf{\color{gray}cuds+hugs encouraged , asleep mostly.}}$$<br>
+  <a href="https://github.com/thecleansers/"> @thecleansers</a> $${\textsf{\color{gray}my sev ♥︎l}}$$<br>
 
